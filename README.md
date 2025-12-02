@@ -33,7 +33,7 @@
 
 ## 📫 Cómo contactarme
 
-- 📧 **Email:** [correoseguro696@gmail.com](mailto:correoseguro696@gmail.com)
+- 📧 **Email:** [correoseguro696@gmail.com](mailto:jorgearrenberg02@gmail.com)
 
 ## 🎯 Enfoque Actual
 
